@@ -3,6 +3,6 @@
 
 
 
-<div align="left">
+<div align="center">
 
 ᴀʟʟ ᴀʀᴛ ʙᴇʟᴏɴɢꜱ ᴛᴏ ꜱɴ_ᴛʀɪx ᴏɴ ᴛᴡɪᴛᴛᴇʀ 
