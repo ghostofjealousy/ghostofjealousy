@@ -4,4 +4,4 @@
 
 <div align="center"
 
-  **a wip so yea be paitent** 
+all art belongs to sn_trix on twitter!
