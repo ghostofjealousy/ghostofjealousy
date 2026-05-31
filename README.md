@@ -3,6 +3,6 @@
 
 
 
-<div align="center">
+<div align="left">
 
 all art belongs to sn_trix on twitter!
