@@ -5,4 +5,4 @@
 
 <div align="left">
 
-all art belongs to sn_trix on twitter!
+ᴀʟʟ ᴀʀᴛ ʙᴇʟᴏɴɢꜱ ᴛᴏ ꜱɴ_ᴛʀɪx ᴏɴ ᴛᴡɪᴛᴛᴇʀ 
